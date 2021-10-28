@@ -2,7 +2,7 @@
 
 Show! Você chegou até a minha seção de Sistemas de Recomendação! 😁
 
-Essa aqui é uma frente nova ainda para mim, mas eu procuro me especializar cada vez mais nela, e em breve.
+Essa aqui é uma frente nova ainda para mim, mas eu procuro me especializar cada vez mais nela.
 
 É uma abordagem que faz parte da minha dissertação de pós graduação, então eu estou muito animado com ela!
 
